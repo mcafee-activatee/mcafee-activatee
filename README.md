@@ -1,1 +1,1 @@
-# httpsijstartcanon
+# Mcafee.com/activate
